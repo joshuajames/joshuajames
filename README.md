@@ -1,1 +1,1 @@
-Engineer. Always be learning.
+Engineer. Always learning.
