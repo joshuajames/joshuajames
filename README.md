@@ -1,1 +1,1 @@
-Engineer. Always learning. Sometimes slowly. Sometimes faster.
+Engineer. Always learning.
